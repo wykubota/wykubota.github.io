@@ -1,0 +1,2 @@
+# wykubota.github.io
+ワイルドワイクボタ
